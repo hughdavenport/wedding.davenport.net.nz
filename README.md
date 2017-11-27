@@ -1,6 +1,6 @@
 ## Welcome to the wedding informational page for Hugh and Adelle
 
-This website will aim to provide you with any details you may want to know in regards to the wedding.
+This website aims to provide you with any details you may want to know in regards to the wedding.
 
 
 ### RSVP options
