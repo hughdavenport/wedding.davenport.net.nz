@@ -1,39 +1,28 @@
-## Welcome to GitHub Pages
+## Welcome to the wedding informational page for Hugh and Adelle
 
-I made a change
+This website will aim to provide you with any details you may want to know in regards to the wedding.
 
-You can use the [editor on GitHub](https://github.com/hughdavenport/wedding.davenport.net.nz/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### RSVP options
 
-### Markdown
+Please send us the enclosed RSVP form via post, or email us at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com) whether you can attend or not, and any dietry requirements you might have. We would also love if you told us a song that you would promise to dance to if we promised to play it :).
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### Location
 
-```markdown
-Syntax highlighted code block
+The venue for both the ceremony and the reception is the lovely [Tirohana Estate, 42 Puruatanga Road, Martinborough](https://www.google.com/maps?q=42+Puruatanga+Road,+Wellington+5711,+New+Zealand).
 
-# Header 1
-## Header 2
-### Header 3
+There is no set accomodation for the event, so we would recommend that you secure any accomodation early.
 
-- Bulleted
-- List
+On the day after the ceremony, we will be hosting a casual BBQ from 12 pm til late at [Porters Homstead, 47 Kitchener St, Martinborough](https://www.google.com/maps/place/47+Kitchener+St,+Martinborough+5711). Please BYO drinks and meat of salad.
 
-1. Numbered
-2. List
+### Transport
 
-**Bold** and _Italic_ and `Code` text
+Shuttles will be available for transport to the venue from various locations around Martinborough. The shuttles will also be available later in the evening from the venue to accomodation in Martinborough. If you would be interested in using this service, please let us know via email at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com).
 
-[Link](url) and ![Image](src)
-```
+### Timing
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+The ceremony will be at 3pm on the 16th of February, followed by a reception til late. The BBQ will be at 12pm til late on the 17th of February.
 
-### Jekyll Themes
+### Children
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/hughdavenport/wedding.davenport.net.nz/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+Please note that due to limited numbers, we are sadly unable to extend the reception invitation to children, however they are welcome at the ceremony and the BBQ.
