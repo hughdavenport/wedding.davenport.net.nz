@@ -5,7 +5,7 @@ This website will aim to provide you with any details you may want to know in re
 
 ### RSVP options
 
-Please send us the enclosed RSVP form via post, or email us at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com) whether you can attend or not, and any dietry requirements you might have. We would also love if you told us a song that you would promise to dance to if we promised to play it :).
+Please send us the enclosed RSVP form via post, or email us at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com) whether you can attend or not, and any dietry requirements you might have. We would also love if you told us a song that you would dance to if we promised to play it :).
 
 ### Location
 
@@ -13,7 +13,7 @@ The venue for both the ceremony and the reception is the lovely [Tirohana Estate
 
 There is no set accomodation for the event, so we would recommend that you secure any accomodation early.
 
-On the day after the ceremony, we will be hosting a casual BBQ from 12 pm til late at [Porters Homstead, 47 Kitchener St, Martinborough](https://www.google.com/maps/place/47+Kitchener+St,+Martinborough+5711). Please BYO drinks and meat of salad.
+On the day after the ceremony, we will be hosting a casual BBQ from 12 pm til late at [Porters Homstead, 47 Kitchener St, Martinborough](https://www.google.com/maps/place/47+Kitchener+St,+Martinborough+5711). Please BYO drinks and meat or salad.
 
 ### Transport
 
