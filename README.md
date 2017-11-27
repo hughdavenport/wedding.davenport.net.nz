@@ -5,7 +5,7 @@ This website aims to provide you with any details you may want to know in regard
 
 ### RSVP options
 
-Please send us the enclosed RSVP form via post, or email us at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com) whether you can attend or not, and any dietry requirements you might have.  We would also love if you told us a song that you would dance to if we promised to play it :).
+Please send us the enclosed RSVP form via post, or email us at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com) whether you can attend or not, and any dietry requirements you might have.  We would also love if you told us a song that you would dance to if we promised to play it.
 
 ### Location
 
