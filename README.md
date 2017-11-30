@@ -26,3 +26,7 @@ The ceremony will be at 3pm on the 16th of February, followed by a reception til
 ### Children
 
 Please note that due to limited numbers, we are sadly unable to extend the reception invitation to children, however they are welcome at the ceremony and the BBQ.
+
+### Gifts
+
+We have a registry at Briscoes **details go here**. If you would like to help cover expenses for the wedding, honeymoon, or house renovations then it would be greatly appreciated. Payments can be put into our bank account at 06-0582-0206956-02.
