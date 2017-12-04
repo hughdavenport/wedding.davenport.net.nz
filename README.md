@@ -17,7 +17,7 @@ Shuttles will be available for transport to the venue from various locations aro
 
 ### Wedding Timing
 
-The ceremony will be at 3pm on the 16th of February, followed by a reception until late.  The BBQ will be at 12pm until late on the 17th of February.
+The ceremony will be at 3pm on the 16th of February, followed by a reception until late.
 
 ### Children
 
