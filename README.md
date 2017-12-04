@@ -11,13 +11,13 @@ Please send us your enclosed RSVP form via post, or email us at [hugh.adelle.wed
 
 The venue for both the ceremony and the reception is [Tirohana Estate, 42 Puruatanga Road, Martinborough](https://www.google.com/maps?q=42+Puruatanga+Road,+Wellington+5711,+New+Zealand).
 
-There is no set accomodation for the event, so we would recommend that you secure any accomodation early.
+There is no set accomodation for the event, so we recommend that you secure any accomodation early.
 
 On the day after the ceremony, we will be hosting a casual BBQ from 12 pm until late at [Porters Homstead, 47 Kitchener St, Martinborough](https://www.google.com/maps/place/47+Kitchener+St,+Martinborough+5711).  Please BYO drinks and meat or salad.
 
 ### Transport
 
-Shuttles will be available for transport to the venue from various locations around Martinborough.  The shuttles will also be available later in the evening from the venue to accomodation in Martinborough.  If you are interested in using this service, please let us know via email at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com).
+Shuttles will be available for transport to the venue from various locations around Martinborough.  The shuttles will also be available later in the evening from the venue to your accomodation in Martinborough.  If you are interested in using this service, please let us know via email at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com).
 
 ### Timing
 
