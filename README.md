@@ -6,6 +6,8 @@ The venue for both the ceremony and the reception is [Tirohana Estate, 42 Puruat
 
 ![map for tirohana estate](https://wedding.davenport.net.nz/assets/images/tirohana-map.png)
 
+![driveway of tirohana estate](https://wedding.davenport.net.nz/assets/images/tirohana-entrance.png)
+
 ### Timing
 
 Ceremony begins at 3
