@@ -25,7 +25,9 @@ Please note that due to limited numbers, we are sadly unable to extend the recep
 
 ### Gifts
 
-We have a registry at Briscoes [which you can find here](https://www.briscoes.co.nz/default.aspx?Z=giftregistry&action=view&id=ADA2EF07-F2A0-4B35-8640-968F933CC81B&order=0). If you would like to help cover expenses for the wedding or the honeymoon it would be greatly appreciated. Payments can be put into our bank account at 06-0582-0206956-02.
+We have a registry at Briscoes [which you can find here](https://www.briscoes.co.nz/default.aspx?Z=giftregistry&action=view&id=ADA2EF07-F2A0-4B35-8640-968F933CC81B&order=0). If you would like to help cover expenses for the wedding or the honeymoon it would be greatly appreciated. Payments can be put into our bank account:
+Bank: ANZ
+Account number: 06-0582-0206956-02
 
 ### BBQ
 
