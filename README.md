@@ -1,4 +1,4 @@
-## Welcome to the wedding page for Hugh and Adelle
+## Wedding information
 
 This website aims to provide you with any details you may want to know in regards to the wedding.
 
