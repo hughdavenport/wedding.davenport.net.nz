@@ -12,7 +12,7 @@ Ceremony begins at 3
 
 ### RSVP
 
-Please send us your enclosed RSVP form via post, or email us at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com) whether you can attend or not, and any dietry requirements you might have.  You can also TELL us a song that you promise to dance to if we play it.
+Please send us your enclosed RSVP form via post, or email us at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com) whether you can attend or not, and any dietry requirements you might have.  You can also tell us a song that you promise to dance to if we play it.
 
 ### Transport
 
