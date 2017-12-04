@@ -1,15 +1,15 @@
 ## Wedding information
 
-This website aims to provide you with any details you may want to know in regards to the wedding.
+This website will provide you with any details you may want to know in regards to the wedding.
 
 
 ### RSVP options
 
-Please send us the enclosed RSVP form via post, or email us at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com) whether you can attend or not, and any dietry requirements you might have.  We would also love if you told us a song that you promise to dance to if we played it.
+Please send us your enclosed RSVP form via post, or email us at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com) whether you can attend or not, and any dietry requirements you might have.  You can also us a song that you promise to dance to if we played it.
 
 ### Location
 
-The venue for both the ceremony and the reception is the [Tirohana Estate, 42 Puruatanga Road, Martinborough](https://www.google.com/maps?q=42+Puruatanga+Road,+Wellington+5711,+New+Zealand).
+The venue for both the ceremony and the reception is [Tirohana Estate, 42 Puruatanga Road, Martinborough](https://www.google.com/maps?q=42+Puruatanga+Road,+Wellington+5711,+New+Zealand).
 
 There is no set accomodation for the event, so we would recommend that you secure any accomodation early.
 
