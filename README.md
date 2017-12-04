@@ -34,6 +34,8 @@ We have a registry at Briscoes [which you can find here](https://www.briscoes.co
 
 Bank: ANZ
 
+Account name: Hugh N Davenport
+
 Account number: 06-0582-0206956-02
 
 ### BBQ
