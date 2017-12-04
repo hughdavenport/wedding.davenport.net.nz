@@ -22,7 +22,7 @@ Shuttles will be available for transport to the venue from various locations aro
 
 ### Accommodation
 
-There is no set accommodation for the event, so we recommend that you secure any accommodation early.
+There is no set accommodation for the event, so we recommend that you secure some early.
 
 ### Children
 
