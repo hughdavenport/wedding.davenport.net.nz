@@ -16,7 +16,7 @@ Please send us your enclosed RSVP form via post, or email us at [hugh.adelle.wed
 
 ### Transport
 
-Shuttles will be available for transport to the venue from various locations around Martinborough.  The shuttles will also be available later in the evening from the venue to your accommodation in Martinborough.  If you are interested in using this service, please let us know via email at hugh.adelle.wedding@gmail.com.
+Shuttles will be available for transport to the venue from various locations around Martinborough.  The shuttles will also be available later in the evening from the venue to your accommodation in Martinborough.  If you are interested in using this service, please let us know via email at [hugh.adelle.wedding@gmail.com](mailto:hugh.adelle.wedding@gmail.com).
 
 ### Accommodation
 
