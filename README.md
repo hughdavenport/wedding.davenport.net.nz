@@ -1,7 +1,5 @@
 ## Wedding information
 
-This website will provide you with any details you may want to know in regards to the wedding.
-
 
 ### RSVP options
 
@@ -27,7 +25,7 @@ Please note that due to limited numbers, we are sadly unable to extend the recep
 
 ### Gifts
 
-We have a registry at Briscoes **details go here**. If you would like to help cover expenses for the wedding or the honeymoon, it would be greatly appreciated. Payments can be put into our bank account at 06-0582-0206956-02.
+We have a registry at Briscoes **details go here**. If you would like to help cover expenses for the wedding or the honeymoon it would be greatly appreciated. Payments can be put into our bank account at 06-0582-0206956-02.
 
 ### BBQ
 
