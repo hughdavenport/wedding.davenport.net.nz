@@ -4,7 +4,7 @@
 
 The venue for both the ceremony and the reception is [Tirohana Estate, 42 Puruatanga Road, Martinborough](https://www.google.com/maps?q=42+Puruatanga+Road,+Wellington+5711,+New+Zealand).
 
-Insert pic of map here
+![map for tirohana estate](https://wedding.davenport.net.nz/assets/images/tirohana-map.png)
 
 ### Timing
 
@@ -36,6 +36,6 @@ Account number: 06-0582-0206956-02
 
 ### BBQ
 
-On the day after the ceremony, we will be hosting a casual BBQ from 12 pm until late at [Porters Homstead, 47 Kitchener St, Martinborough](https://www.google.com/maps/place/47+Kitchener+St,+Martinborough+5711).  Please BYO drinks and meat or salad.
+On the day after the ceremony, we will be hosting a casual BBQ from 12 pm until late at [Porters Homestead, 47 Kitchener St, Martinborough](https://www.google.com/maps/place/47+Kitchener+St,+Martinborough+5711).  Please BYO drinks and meat or salad.
 
-Insert pic of map here
+![map for porters homestead](https://wedding.davenport.net.nz/assets/images/porters-map.png)
