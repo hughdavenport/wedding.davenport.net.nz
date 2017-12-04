@@ -10,7 +10,7 @@ The venue for both the ceremony and the reception is [Tirohana Estate, 42 Puruat
 
 ### Timing
 
-Ceremony begins at 3
+The ceremony begins at 3pm and the reception will follow until late.
 
 ### RSVP
 
