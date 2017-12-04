@@ -3,4 +3,6 @@
 
 @import "{{ site.theme }}";
 a#forkme_banner { display: none }
+span.ribbon-outer { display: none }
+div#no-downloads { display: none }
 p { white-space: pre-wrap }
