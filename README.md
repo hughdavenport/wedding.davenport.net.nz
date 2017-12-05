@@ -1,16 +1,14 @@
 ## Information for Hugh and Adelle’s Wedding
 
-### Location
+### Details
 
 The venue for both the ceremony and the reception is [Tirohana Estate, 42 Puruatanga Road, Martinborough](https://www.google.com/maps?q=42+Puruatanga+Road,+Wellington+5711,+New+Zealand).
+
+The ceremony begins at 3pm and the reception will follow until late.
 
 ![map for tirohana estate](https://wedding.davenport.net.nz/assets/images/tirohana-map.png)
 
 ![driveway of tirohana estate](https://wedding.davenport.net.nz/assets/images/tirohana-entrance.png)
-
-### Timing
-
-The ceremony begins at 3pm and the reception will follow until late.
 
 ### RSVP
 
