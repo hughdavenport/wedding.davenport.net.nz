@@ -6,3 +6,4 @@ body {
 .header-level-1 { color: #66418C }
 .header-level-2 { color: #66418C }
 
+p { white-space: pre-wrap }
