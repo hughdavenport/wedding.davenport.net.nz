@@ -1,6 +1,6 @@
 ## Information for Hugh and Adelle’s Wedding
 
-![header photo](/assets/images/20160730_121713.jpg)
+![header photo](/assets/images/wedding-header.png)
 
 ### Details
 
