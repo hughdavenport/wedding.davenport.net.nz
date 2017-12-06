@@ -1,6 +1,6 @@
 ## Information for Hugh and Adelle’s Wedding
 
-![header photo](/assets/images/wedding-header.png)
+![header photo](https://github.com/hughdavenport/wedding.davenport.net.nz/blob/master/assets/images/wedding-header.pngg)
 
 ### Details
 
@@ -8,9 +8,9 @@ The venue for both the ceremony and the reception is [Tirohana Estate, 42 Puruat
 
 The ceremony begins at 3pm and the reception will follow until late.
 
-![map for tirohana estate](https://wedding.davenport.net.nz/assets/images/tirohana-map.png)
+![map for tirohana estate](https://github.com/hughdavenport/wedding.davenport.net.nz/blob/master/assets/images/tirohana-map.png)
 
-![driveway of tirohana estate](https://wedding.davenport.net.nz/assets/images/tirohana-entrance.png)
+![driveway of tirohana estate](https://github.com/hughdavenport/wedding.davenport.net.nz/blob/master/assets/images/tirohana-entrance.png)
 
 ### RSVP
 
@@ -42,4 +42,4 @@ Account number: 06-0582-0206956-02
 
 On the day after the ceremony, we will be hosting a casual BBQ from 12 pm until late at [Porters Homestead, 47 Kitchener St, Martinborough](https://www.google.com/maps/place/47+Kitchener+St,+Martinborough+5711).  Please BYO drinks and meat or salad.
 
-![map for porters homestead](https://wedding.davenport.net.nz/assets/images/porters-map.png)
+![map for porters homestead](https://github.com/hughdavenport/wedding.davenport.net.nz/blob/master/assets/images/porters-map.png)
