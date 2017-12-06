@@ -1,5 +1,7 @@
 ## Information for Hugh and Adelle’s Wedding
 
+![header photo](/assets/images/20160730_121713.jpg)
+
 ### Details
 
 The venue for both the ceremony and the reception is [Tirohana Estate, 42 Puruatanga Road, Martinborough](https://www.google.com/maps?q=42+Puruatanga+Road,+Wellington+5711,+New+Zealand).
